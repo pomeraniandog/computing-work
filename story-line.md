@@ -7,5 +7,6 @@ likings: kpop, friends, dogs and cats
 
 
 *MY STORY*
+feel free to add on :3
 
-T
+there was a girl, 
